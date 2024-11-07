@@ -21,7 +21,7 @@ i'm currently a student at University of Wollong College Hong Kong
 ---
 [![](https://visitcount.itsvg.in/api?id=coolbirb43&icon=4&color=9)](https://visitcount.itsvg.in)
 
-  ## 💰 You can help me by Donating
+  ## 💰 you can support me by donating :3
   [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/paypal.me/fesalbongiancarlo) 
 
   
